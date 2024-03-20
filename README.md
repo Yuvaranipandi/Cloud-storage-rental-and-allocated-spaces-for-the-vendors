@@ -1,0 +1,1 @@
+# Cloud-storage-rental-and-allocated-spaces-for-the-vendors
